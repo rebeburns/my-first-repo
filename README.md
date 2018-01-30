@@ -3,7 +3,7 @@
 Currently in Spain, soon to be in California.
 ### Reading
 -*Crime and Punishment*
-###Food
+### Food
 -Delicious salads
 -Vegetarian stuff 
 
