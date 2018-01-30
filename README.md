@@ -2,8 +2,8 @@
 ### Geography
 Currently in Spain, soon to be in California.
 ### Reading
--*Crime and Punishment*
+- *Crime and Punishment*
 ### Food
--Delicious salads
--Vegetarian stuff 
+- Delicious salads
+- Vegetarian stuff 
 
